@@ -10,7 +10,7 @@ Guilherme Beck Lobo – RM: 87531
 
 Gustavo Lopes Carlin – RM: 87339
 
-Jhoctan de Deus Teixera – RM: 88206
+Jhoctan de Deus Teixeira – RM: 88206
 
 
 ### Projeto no Youtube: https://youtu.be/13ibwliE3BY
